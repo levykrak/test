@@ -11,3 +11,6 @@ cos tam ble ble
 sprawdzamy youtuba z teraz
 
 fsdfsdafsadfsda
+
+
+hjkgjhgjkgjjkghjhjghjgjgjgjgjkbbhjbhjsdklfmsklgmkldkd
